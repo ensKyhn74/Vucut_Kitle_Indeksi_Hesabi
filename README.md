@@ -1,0 +1,1 @@
+# Vucut_Kitle_Indeksi_Hesabi
